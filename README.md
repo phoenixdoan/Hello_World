@@ -10,10 +10,10 @@ My name is Phoenix Doan and I am a third year studying Business Analytis Informa
 
 During my free time I like to cook new foods from different cusines. I specficially like to learn to make Vietnamese food as it was my childhood favorite dishes. I also spend my time being outdoors and in nature. I love the summer time for the longer and sunnier days. 
 
-## ***MY LINKEDIN***
-www.linkedin.com/in/phoenixdoan
-
 ## ***TOP VALUES***
 1. Family and friends
 2. Kindness
 3. Honestly
+
+## ***MY LINKEDIN***
+www.linkedin.com/in/phoenixdoan
