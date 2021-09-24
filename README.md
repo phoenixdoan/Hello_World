@@ -16,4 +16,11 @@ During my free time I like to cook new foods from different cusines. I specficia
 3. Honestly
 
 ## ***MY LINKEDIN***
-www.linkedin.com/in/phoenixdoan
+[LinkedIn] (www.linkedin.com/in/phoenixdoan)
+
+## ***INVOLVED STUDENT ORGANIZATIONS***
+- BizEdge
+- Iowa Edge
+- Vietnamese Student Association
+- Asian American Student Union
+- Multicultural Business Student Association
